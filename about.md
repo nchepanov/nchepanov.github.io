@@ -3,4 +3,8 @@ layout: page
 title: About
 ---
 
-I have thoughts and I want to write them down. If you have thoughts about it, I'd love to know them: nikita@chepanov.com
+This blog for me is a way of coming out of a "spiritual closet".
+
+The posts summarize what's happening in my head on a daily basis.
+
+If any of this resonates with you, please reach out: nikita at this site dot com
