@@ -1,9 +1,11 @@
 ---
 title: Enjoy wanting
-updated: 2021-05-22 12:30
+updated: 2021-05-23 12:00
 ---
 
-It was Wednesday night, my friend and I met outside a restaurant to catch up over dinner. As we entered the dimly lit space a hostess approached us. She was so stunning that I immediately became self-conscious and lost all words. I spent the rest of the night thinking whether I should talk to her. I thought she was so perfect, she wouldn’t even want to talk to me. Pretty irrational, I know.
+It was Wednesday night, my friend and I met outside a restaurant to catch up over dinner. As we entered the dimly lit space a hostess approached us. She was so stunning that I immediately became self-conscious and lost all words. I spent the rest of the night thinking whether I should ask her out, but I felt convinced she wouldn’t even want to talk to me. Pretty irrational, I know.
+
+My friend works at a tech company. She really cares about her work and her team, knows the ins and outs in her department. She always wanted to take on a leadership position, but always thought: "I'm too young. I'm not technical enough. I wouldn't be taken seriously."
 
 We often find ourselves wanting something and thinking we don’t deserve it. What’s worse, you can’t stop yourself from wanting, nor can you make yourself want.  It’s frustrating as these are often the things we most fear we can’t get. 
 
@@ -13,4 +15,4 @@ Your wants - big or small - are a result of a never seen before combination of c
 
 Accept, listen to and express your wants. You may not get what you want but wanting is your birthright. Enjoy it.
 
-P.S. I ended up talking to her and asking for her number. She was sweet and genuine, however our wants were misaligned at the time and we never met again.
+P.S. I ended up talking to her and asking for her number. She was sweet and genuine, however our wants were misaligned at the time and we never met again. Oh, and my friend has been a team leader for over a year now and her team loves her.
