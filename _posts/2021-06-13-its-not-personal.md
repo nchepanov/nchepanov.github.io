@@ -1,0 +1,18 @@
+---
+title: It's not personal
+updated: 2021-06-13 14:30
+---
+
+This t-shirt you are wearing… you will never get dates like this, try wearing something more fashionable. Ah yeah, you should probably lose some weight too, it will be good for you. You are not manly enough – if you continue behaving like a girl, noone will ever take you seriously at work. Why are you still single? A man/woman your age should be married already. You’re thinking too much, try relaxing sometimes.
+
+All too familiar. Unasked for. Often from those we are close too. Always with the best intentions.
+
+Here’s a catch. An unprompted advice you might receive is merely an opinion. It has nothing to do with you. It does not reflect reality. It does reflect however the subjective world-view of the person giving the advice. It reveals their fears, insecurities and trauma.
+
+It may seem counterintuitive, but accepting another person as they are would do them more good than trying to fix them up to your standards. There’s a difference between stating an opinion and giving an advice. “I don’t like ____” –  is an opinion. Every personal is entitled to have one. “You should ____” – is an advice.
+
+Don’t take other people’s opinions personally, they are not really talking about you.
+
+P.S. This post contains an opinion. Oh the irony.
+
+Inspired by “The Four Agreements” by Don Miguel Ruiz.
