@@ -9,7 +9,7 @@ All too familiar. Unasked for. Often from those we are close too. Always with th
 
 Here’s a catch. An unprompted advice you might receive is merely an opinion. It has nothing to do with you. It does not reflect reality. It does reflect however the subjective world-view of the person giving the advice. It reveals their fears, insecurities and trauma.
 
-It may seem counterintuitive, but accepting another person as they are would do them more good than trying to fix them up to your standards. There’s a difference between stating an opinion and giving an advice. “I don’t like ____” –  is an opinion. Every personal is entitled to have one. “You should ____” – is an advice.
+It may seem counterintuitive, but accepting another person as they are would do them more good than trying to fix them up to your standards. There’s a difference between stating an opinion and giving an advice. “I don’t like _\_\_\_” –  is an opinion. Every personal is entitled to have one. “You should _\_\_\_” – is an advice.
 
 Don’t take other people’s opinions personally, they are not really talking about you.
 
